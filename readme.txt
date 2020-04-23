@@ -1,0 +1,1 @@
+This is the beginning of getting back into the Linux and programming world. After spending time in the USMC and finding what makes me happy again I have decided to pick up where I left off almost 20 years ago. It'll be a wild ride! Thanks for checking me out!
